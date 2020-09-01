@@ -51,3 +51,10 @@ Failure https://youtu.be/eaUUeFoB9CQ
 33. Tell me about a time you recovered from a difficult situation
 34. Tell me about a time you failed and what you learned from it
 35. Why Amazon https://youtu.be/H_KGM0i9jkA
+
+
+##
+Based on what we discussed, how do I stack against other candidates?
+Any concerns about my ability to do the job?
+What do I need to do to get the job?
+What makes a great candidate for this role?
